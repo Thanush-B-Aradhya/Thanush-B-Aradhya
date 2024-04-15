@@ -11,4 +11,4 @@ About My Current Situation
 
 
   
-- 📫<a href="mailto:thanush.connect@gmail.com?subject=Hello%20there&body=Email%20Contents!">My Email</a>
+- 📫<a href="mailto:thanush.connect@gmail.com?subject=Hello%20there&body=Email%20Contents!">My Email</a> THANUSH.CONNECT@GMAIL.COM
