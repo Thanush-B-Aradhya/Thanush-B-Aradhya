@@ -2,7 +2,7 @@
 
 About My Current Situation
 
-- 🚶🏼‍♂️ I'm ~17.75~ as of May-Three-of-2024.
+- 🚶🏼‍♂️ I'm 17.75 as of May-Three-of-2024.
 - 🔭 I’m currently working on Becoming Nerd/Geek hufff..!
 - 🌱 I’m currently learning |AI|ML| ~ |Python|NumPy|Scikt-Learn| ~ |MySQL|.
 - 👯 I’m looking to collaborate with people who are solving REAL WORLD PROBLEMS with ""AI"".
