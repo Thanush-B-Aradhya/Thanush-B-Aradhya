@@ -7,7 +7,7 @@ About My Current Situation
 - 🌱 I’m currently learning |AI|ML| ~ |Python|NumPy|Scikt-Learn| ~ |MySQL|.
 - 👯 I’m looking to collaborate with people who are solving REAL WORLD PROBLEMS with ""AI"".
 - 🤔 I’m looking for help to join team with whom I wanted to collaborate AND make 💰]
-- ⚡ Fun fact: I've never been in a relationship💞
+- ⚡ Fun fact: I've never been in a relationship~💞~
 
 
   
