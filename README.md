@@ -2,7 +2,7 @@
 
 About My Current Situation
 
-- 🚶🏼‍♂️ I'm 17.75 as of May Third of 2024...!!
+- 🚶🏼‍♂️ I'm 17.75 as of May Threee of 2024...!!
 - 🔭 I’m currently working on ....!?
 - 🌱 I’m currently learning AI, ML, Python, MySQL, NumPy, Scikt-Learn.
 - 👯 I’m looking to collaborate with people who are solving REAL WORLD PROBLEMS with ""AI"".
