@@ -2,10 +2,13 @@
 
 About My Current Situation
 
-- 🚶🏼‍♂️ I'm 17.75 as of May Threee of 2024...!!
-- 🔭 I’m currently working on ....!?
-- 🌱 I’m currently learning AI, ML, Python, MySQL, NumPy, Scikt-Learn.
+- 🚶🏼‍♂️ I'm ~17.75~ as of May-Three-of-2024.
+- 🔭 I’m currently working on Becoming Nerd/Geek hufff..!
+- 🌱 I’m currently learning |AI|ML| ~ |Python|NumPy|Scikt-Learn| ~ |MySQL|.
 - 👯 I’m looking to collaborate with people who are solving REAL WORLD PROBLEMS with ""AI"".
-- 🤔 I’m looking for help to join team with whom I wannted to collaborate.
-- 📫 How to reach me: Thanush.Connect.gmail.com
+- 🤔 I’m looking for help to join team with whom I wanted to collaborate AND make 💰]
 - ⚡ Fun fact: I've never been in a relationship💞
+
+
+  
+- 📫 How to reach me: Thanush.Connect.gmail.com
