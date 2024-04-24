@@ -10,8 +10,7 @@ About My Current Situation
  - ⚡ Fun fact: I've never been in a relationship ~💞~
 <br>
 
-<a href="mailto:thanush.connect@gmail.com">![Mail](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/8b7112f2-000f-4297-a623-fa39056332ab)
- </a> </p>
+<a href="mailto:thanush.connect@gmail.com">![Mail](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/8b7112f2-000f-4297-a623-fa39056332ab)</a> &emsp; &emsp; &emsp; 
 [![X](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/a626e5fa-89a0-49ee-97a3-c42356a3a0d1)](https://twitter.com/HeIsThanush) &emsp; &emsp; &emsp;
 [![pngwing com](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/d804f1f3-2fe3-47b3-9a85-e4825ab613c6)](https://www.linkedin.com/in/thanush-b-%E2%80%8Earadhya-2ab3b421a/) &emsp; &emsp; &emsp;
 [![Instagram](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/4bc7fa1a-8309-4387-95e2-f68cf2ffbe1b)](https://www.instagram.com/idiosyncratic_man_/) &emsp; &emsp; &emsp;
