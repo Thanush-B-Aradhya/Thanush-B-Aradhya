@@ -12,4 +12,4 @@ About My Current Situation
 
 - 📫<a href="mailto:thanush.connect@gmail.com?subject=Hello%20there&body=Email%20Contents!">Connect</a>
 - 💬[Telegram](https://t.me/THANUSH_B_ARADHYA)
-- ["https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/6d7ad903-3338-44f4-9407-2ab9ff34c6a5"] (https://www.linkedin.com/in/thanush-b-%E2%80%8Earadhya-2ab3b421a/)
+- [! "https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/6d7ad903-3338-44f4-9407-2ab9ff34c6a5"] (https://www.linkedin.com/in/thanush-b-%E2%80%8Earadhya-2ab3b421a/)
