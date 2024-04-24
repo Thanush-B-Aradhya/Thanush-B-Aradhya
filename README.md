@@ -10,6 +10,6 @@ About My Current Situation
 - ⚡ Fun fact: I've never been in a relationship ~💞~
 
 
-  
+- My [Linked in](https://www.linkedin.com/in/thanush-b-%E2%80%8Earadhya-2ab3b421a/)
 - 📫<a href="mailto:thanush.connect@gmail.com?subject=Hello%20there&body=Email%20Contents!">Connect</a>
 - 💬 https://t.me/THANUSH_B_ARADHYA
