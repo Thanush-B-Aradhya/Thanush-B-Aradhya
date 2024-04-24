@@ -10,5 +10,5 @@ About My Current Situation
 - ⚡ Fun fact: I've never been in a relationship ~💞~
 
 <br>[![Telegram](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/6981ff8d-8dca-4f92-8a49-9b209d6a0006)](https://t.me/THANUSH_B_ARADHYA)
-[![Linkedin](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/fcdd71a2-d886-4b8b-974d-b8d7b1d49b5b)](https://www.linkedin.com/in/thanush-b-%E2%80%8Earadhya-2ab3b421a/)
+[![linkedin(90)](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/50ec5024-a528-4df7-a2fe-eede530bbfab)](https://www.linkedin.com/in/thanush-b-%E2%80%8Earadhya-2ab3b421a/)
 [![X](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/a626e5fa-89a0-49ee-97a3-c42356a3a0d1)](https://twitter.com/HeIsThanush)
