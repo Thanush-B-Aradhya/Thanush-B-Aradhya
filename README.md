@@ -4,7 +4,7 @@ About My Current Situation
 
 - 🚶🏼‍♂️ I'm 17.75 as of May-Three-of-2024.
 - 🔭 I’m currently working on Becoming Nerd/Geek hufff..!
-- 🌱 I’m currently learning |AI|ML| ~ |Python|NumPy|Scikt-Learn| ~ |MySQL|.
+- 🌱 I’m currently learning AI | ML || ~ |Python | NumPy | Scikt-Learn || ~ | MySQL.
 - 👯 I’m looking to collaborate with people who are solving REAL WORLD PROBLEMS with ""AI"".
 - 🤔 I’m looking for help to join team with whom I wanted to collaborate AND make 💰]
 - ⚡ Fun fact: I've never been in a relationship ~💞~
@@ -12,4 +12,4 @@ About My Current Situation
 
 - 📫<a href="mailto:thanush.connect@gmail.com?subject=Hello%20there&body=Email%20Contents!">Connect</a>
 - 💬 https://t.me/THANUSH_B_ARADHYA
-[![linkedin-logo-png-2032](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/6d7ad903-3338-44f4-9407-2ab9ff34c6a5 width="100" height="30")](https://www.linkedin.com/in/thanush-b-%E2%80%8Earadhya-2ab3b421a/)
+[![linkedin-logo-png-2032](img src = "https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/6d7ad903-3338-44f4-9407-2ab9ff34c6a5" width="100" height="30")](https://www.linkedin.com/in/thanush-b-%E2%80%8Earadhya-2ab3b421a/)
