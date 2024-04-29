@@ -4,7 +4,7 @@ About My Current Situation
 
  - 🚶🏼‍♂️ I'm 17.75 as of May-Three-of-2024.
  - 🔭 I’m currently working on becoming NERD/GEEK hufff..!
- - 🌱 I’m currently learning AI | ML || ~ |Python | NumPy | Scikt-Learn || ~ | MySQL
+ - 🌱 I’m currently learning AI | ML || ~ |Python Lib|| ~ | MySQL
  - 👯 I’m looking to make friends/collaborate/join with people who are solving REAL WORLD PROBLEMS with ""AI & ML"".
  - 🤔 I’m looking for projects and even internships in AI and ML and anyother related tech...!
  - ⚡ Fun fact: I've never been in a relationship ~💞~
