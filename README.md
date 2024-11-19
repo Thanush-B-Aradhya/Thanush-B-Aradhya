@@ -5,7 +5,7 @@
  - 🚶🏼‍♂️ I'm 17.75 as of May-Three-of-2024.
  - 🔭 I’m currently working on Python, AI, ML.
  - 👯 I’m looking to make friends/collaborate/join with people who are solving REAL WORLD PROBLEMS with use of AI / ML.......!!
- - 🤔 I’m looking for projects and even internships in AI and ML and anyother related tech...!
+ - 🤔 I’m looking for projects and even internships in AI and ML and anyother related to "<--THIS"...!
  - ⚡ Fun fact: I've never been in a relationship ~💞~
 <br>
 
