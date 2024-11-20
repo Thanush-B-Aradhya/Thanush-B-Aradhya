@@ -6,8 +6,7 @@
  - 🔭 I’m currently working on Python, AI, ML.
  - 👯 I’m looking to make friends/collaborate/join with people who are solving REAL WORLD PROBLEMS with use of AI / ML.......!!
  - 🤔 I’m looking for projects and even internships in AI and ML and anyother related to "<--THIS"...!
- - ⚡ Fun fact: I've never been in a relationship ~💞~
-<br>
+
 
 <a href="mailto:thanush.connect@gmail.com">![Mail](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/8b7112f2-000f-4297-a623-fa39056332ab)</a> &emsp; &emsp; &emsp; 
 [![X](https://github.com/Thanush-B-Aradhya/Thanush-B-Aradhya/assets/146853395/a626e5fa-89a0-49ee-97a3-c42356a3a0d1)](https://twitter.com/HeIsThanush) &emsp; &emsp; &emsp;
